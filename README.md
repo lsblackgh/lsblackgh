@@ -1,0 +1,2 @@
+- 👋 ola sou nicolas couto correia
+- 👀 estou interresado em medicina
